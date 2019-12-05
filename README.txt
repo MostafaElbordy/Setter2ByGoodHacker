@@ -4,9 +4,10 @@ Please Do Not Steal The Tool Without Mentioning Our Name
 
 Good Thank For :
 
-	"Mr.Zeus"
+	"Adham 74"
 	"Mr.Hoggan"
 	"OOMD_Noor"
+        "Kabo " 
 
 Our Channel On Telegram :
 
