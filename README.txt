@@ -8,11 +8,12 @@ Good Thank For :
 	"Mr.Hogaan"
 	"OOMD_Noor"
         "Kabo "
-        "MR.Steal" 
+        "MR.Steal"
+        "Abo Elyazeid" 
 
 Our Channel On Telegram :
 
-        @GoodHacker011
+        t.me/GoodHacker011
 
 Our Channel On YouTube :
 
