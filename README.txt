@@ -13,7 +13,7 @@ Good Thank For :
 
 Our Channel On Telegram :
 
-        t.me/GoodHacker011
+        https://t.me/GoodHacker011
 
 Our Channel On YouTube :
 
